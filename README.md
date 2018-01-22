@@ -1,2 +1,11 @@
 # Jovany
-my personal page
+
+Objective:
+
+Education:
+
+Experience
+
+Skills
+
+
