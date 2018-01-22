@@ -12,8 +12,4 @@ Associate of Arts
 December 2018
 Broward College
 
-Experience
-
-Skills
-
 
