@@ -7,13 +7,11 @@ Objective: To Secure a position at your company or business where I can best Uti
 Education:
 
 Bachlors of Science    
-August 2016
-
+August 2016    
 Florida International University
 
-Associate of Arts 
-December 2018
-
+Associate of Arts  
+December 2018        
 Broward College
 
 
